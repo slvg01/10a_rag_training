@@ -1,0 +1,1 @@
+# *** just a back up of my training on RAG - Do not Loose your time here 😁 ***
